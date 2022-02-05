@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Min0sA
+- 👀 I’m interested in Programing
+- 🌱 I’m currently learning JavaScript
+- 💞️ I’m looking to collaborate on no one sorry
+- 📫 How to reach me i am alone
